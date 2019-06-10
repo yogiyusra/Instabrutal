@@ -1,1 +1,21 @@
 # Instabrutal
+Akun123
+Jangan12
+Sayang
+1111
+2222
+123456
+12345678
+221201
+23071996
+Kamu123
+Akumaukamu
+Akusayang12
+Bismillahirahmanirahim
+Cinta12
+112233445566
+123456789
+07192001
+12233451
+Qwerty
+Asuuu123
